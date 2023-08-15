@@ -1,1 +1,0 @@
-AC got fried lol
